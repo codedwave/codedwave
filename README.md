@@ -15,5 +15,5 @@
 <em>⋆｡ ˚ ☽ Wandarhoy!! ☾ ˚｡ ⋆ </em>
   <br> <br>
   ────୨ৎ────
-  <p align="center"> Source: code_wave (both atabook and github)
+  <p align="center"> Source: coded_wave (both atabook and github)
   </html>
