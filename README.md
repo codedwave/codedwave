@@ -3,6 +3,8 @@
 
 <p align="center">
 <b>Hyperfixated on FE:C/FE2 right now</b>
+  <p align="center">
+  Kindly DO NOT INTERACT with me if you see <b>Crazyblox / Guide</b> as <b>father / son</b>. I heavy uncomfortable with that
   <br> <p align="center">
 [ <a href="https://codedwave.atabook.org/">atabook</a> ]
   
