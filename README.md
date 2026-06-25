@@ -5,7 +5,10 @@
 <b>Hyperfixated on FE:C/FE2 right now</b>
   <p align="center">
   Kindly DO NOT INTERACT with me if you see <b>Crazyblox / Guide</b> as <b>father / son</b>. I heavy uncomfortable with that
-  <br> <p align="center">
+  <br>
+    <p align="center">
+      Mind your language. I'm fine with C+H but if you talk to me or my moots in a weird way then ready to be blocked.
+  <p align="center">
 [ <a href="https://codedwave.atabook.org/">atabook</a> ]
   
   <br>
