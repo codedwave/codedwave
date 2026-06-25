@@ -7,7 +7,7 @@
   Kindly DO NOT INTERACT with me if you see <b>Crazyblox / Guide</b> as <b>father / son</b>. I heavy uncomfortable with that
   <br>
     <p align="center">
-      Mind your language. I'm fine with C+H but if you talk to me or my moots in a weird way then ready to be blocked.
+      Mind your language. I'm fine with C+H but if you talk or do sth weird to me or my moots then ready to be blocked.
   <p align="center">
 [ <a href="https://codedwave.atabook.org/">atabook</a> ]
   
