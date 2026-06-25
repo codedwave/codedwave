@@ -11,10 +11,10 @@
   <br>
    <p align="center"> ♫ ⋆ ｡♪ ₊˚♬ ﾟ ♫ ₊˚♬ ﾟ.⋆｡♪
   <p align="center">
-<img width="800" height="496" alt="14d3ea4f-c6ee-4d61-92fb-863ec3623b2c" src="https://github.com/user-attachments/assets/5ee71507-890f-4bf2-98d0-117873f6cbb2" />
+<img width="800" height="450" alt="fe3aeab2-4c14-457e-b9c6-ac316b2e3494" src="https://github.com/user-attachments/assets/db51c837-ab9b-435b-b5ac-de033e2ae0ca" />
   <br>
 <p align="center">
-<em>⋆｡ ˚ ☽ Wandarhoy!! ☾ ˚｡ ⋆ </em>
+<em>"I'm feeling a bit UNWELLLLLLLLLLLLLLL"</em>
   <br> <br>
   ────୨ৎ────
   <p align="center"> Source: coded_wave (both atabook and github)
