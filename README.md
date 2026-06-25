@@ -9,6 +9,10 @@
     <p align="center">
       Mind your language. I'm fine with C+H but if you talk or do sth weird to me or my moots then ready to be blocked.
   <p align="center">
+[ <a href="https://x.com/pio_pi04">X</a> ] 
+      <p align="center">
+    (mostly about MikuTeto slops)
+      <p align="center">
 [ <a href="https://codedwave.atabook.org/">atabook</a> ]
   
   <br>
